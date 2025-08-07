@@ -1,1 +1,1 @@
-# -innowise-delab-aug-2025_-Nikolay_Lapin
+# -innowise-de-lab-aug-2025_-Nikolay_Lapin
